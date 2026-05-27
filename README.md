@@ -4,9 +4,8 @@
   </a>
 </p>
 🧛ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
-[<!--](https://external-media.spacehey.net/media/sUyLQcM43CWE74cMsdWNzXucway4ObhpGer6BwQV_pss=/https://i.ibb.co/vmVHnXh/vampiresnever.gif)
-**shlofolna/shlofolna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+[
+](https://external-media.spacehey.net/media/sUyLQcM43CWE74cMsdWNzXucway4ObhpGer6BwQV_pss=/https://i.ibb.co/vmVHnXh/vampiresnever.gif)
 Here are some ideas to get you started:
 horror whore
 - ⚰️ keep your soul like a secret in your throat 
