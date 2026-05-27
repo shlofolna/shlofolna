@@ -4,9 +4,7 @@
   </a>
 </p>
 ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
-[
-](https://external-media.spacehey.net/media/sUyLQcM43CWE74cMsdWNzXucway4ObhpGer6BwQV_pss=/https://i.ibb.co/vmVHnXh/vampiresnever.gif)
-horror whore
+
 - ⚰️ keep your soul like a secret in your throat 
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
