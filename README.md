@@ -3,10 +3,9 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=isgzhf88c3s5dgrzcv3e665ir&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
   </a>
 </p>
-🧛ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
+ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
 [
 ](https://external-media.spacehey.net/media/sUyLQcM43CWE74cMsdWNzXucway4ObhpGer6BwQV_pss=/https://i.ibb.co/vmVHnXh/vampiresnever.gif)
-Here are some ideas to get you started:
 horror whore
 - ⚰️ keep your soul like a secret in your throat 
 - 👯 I’m looking to collaborate on ...
