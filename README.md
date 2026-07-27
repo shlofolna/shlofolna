@@ -4,4 +4,3 @@
   </a>
 </p>
 ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
-![this is an image](https://github.com/shlofolna/shlofolna/blob/821851e72b147f1bcad9607d685fbcaab2862e8a/casette%20gif%20retro%20colorful%20oldschool.gif) 
