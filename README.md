@@ -4,4 +4,4 @@
   </a>
 </p>
 ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
-(casette gif retro colorful oldschool.gif)
+
