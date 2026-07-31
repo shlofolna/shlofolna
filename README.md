@@ -5,3 +5,4 @@
 </p>
 ᴋᴇᴇᴘ ʏᴏᴜʀ ꜱᴏᴜʟ ʟɪᴋᴇ ᴀ ꜱᴇᴄʀᴇᴛ ɪɴ ʏᴏᴜʀ ᴛʜʀᴏᴀᴛ
 
+ <img src="https://media.discordapp.net/attach…8&height=1208"/></div>
